@@ -3,6 +3,12 @@
 **Florida Department of Highway Safety and Motor Vehicles · Florida Highway Patrol, Office of Analytical Support**
 Work assignment · Submitted November 6, 2026
 
+## Preview card
+
+[![FHP Research & Statistics Consultant — Skills Assessment — Ultra 3D preview card](https://enmanueldmejia.com/assets/cards/hq-flhsmv_16x9_poster.webp)](https://enmanueldmejia.com/#work)
+
+▶ [Watch the Ultra 3D preview card](https://enmanueldmejia.com/#work) — animated, narrated, facial-synced.
+
 A two-part skills assessment completed for the Research and Statistics Consultant position (Position #76000491, Requisition #885718), issued by the Florida Highway Patrol's Office of Analytical Support.
 
 ## What I delivered
